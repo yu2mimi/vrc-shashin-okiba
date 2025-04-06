@@ -1,1 +1,0 @@
-# vrc-shashin-okiba
